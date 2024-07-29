@@ -5,7 +5,7 @@
 
 - 👨‍💻 Check out my website [www.umayrrahman.co.uk](www.umayrrahman.co.uk)
 
-- 📫 How to reach me **hello@umayrrahman.co.uk**
+- 📫 How to reach me: **hello@umayrrahman.co.uk**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
